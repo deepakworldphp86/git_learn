@@ -1,1 +1,1 @@
-Hi how r u fine| High | Low
+Hi how r u fine| High 
